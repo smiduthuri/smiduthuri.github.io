@@ -30,7 +30,7 @@ _Human Computer Interaction International 2015_
 
 ## Resume
 
-Download my resume [here](Website_Files/SaiParthasarathyMiduthuri.pdf) (updated December 2017)
+Download my resume [here](https://drive.google.com/file/d/1CMxkuDUM9XhhvMUi6ZCXBRINPmhLSSU2/view?usp=sharing) (updated January 2018)
 
 ## Contact Me
 
